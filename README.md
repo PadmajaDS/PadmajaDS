@@ -2,7 +2,7 @@
 - 👀 I’m interested in Researches and Data analysis
 - 🌱 I’m currently learning Honours Degree in Statistics
 - 💞️ I’m looking to collaborate on DataScience industry
-- 📫 Contact me throug pathmajamaneesha@gmail.com
+- 📫 Contact me through pathmajamaneesha@gmail.com
 - 😄 Pronouns: Padmaja
 - ⚡ Fun fact: I'm interested in travelling and to study nature
 
